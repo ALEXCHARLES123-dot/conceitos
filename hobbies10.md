@@ -1,0 +1,1 @@
+estar na régua.
